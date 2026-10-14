@@ -1,1 +1,0 @@
-Video demo Buổi 4 : [Video](https://drive.google.com/drive/folders/17nKYD1FBupaeaYHPSjzNXGnoaD8JdQZd?usp=sharing)
